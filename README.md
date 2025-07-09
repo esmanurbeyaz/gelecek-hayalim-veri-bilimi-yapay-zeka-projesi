@@ -74,7 +74,7 @@ Amaç, **iklim duyarlılığını artırmak**, **veri temelli farkındalık olu�
 
 🎥 Projeye ait tanıtım ve analiz videosuna aşağıdaki bağlantıdan ulaşabilirsiniz:
 
-🔗 [Proje Videosunu İzle (Google Drive)](DRIVE_LINKİNİ_BURAYA_EKLE)
+🔗 [Proje Videosunu İzle (Google Drive)](https://drive.google.com/drive/folders/1ICZwI9Lfjfb9LsE1off-AF7opK65htja?usp=sharing)
 
 ---
 
